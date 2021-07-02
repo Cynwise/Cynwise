@@ -1,4 +1,4 @@
-### Hey 👋, I'm [Cynwise!](https://cynwise.github.io)
+### Hey 👋, I'm [Cynwise!](https://github.com/Cynwise)
 
 **Bio**
 
